@@ -14,3 +14,15 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+Morgan C
+
+I'm currently working on becoming adept at JavaScript! 💻
+
+I'm currently learning the ins and outs of GitHub and Javascript 👩🏼‍💻
+
+Reach me at: morgancorder1056@gmail.com ✉️
+
+Pronouns: She/Her  He/Him  Any!
+
+Fun fact: I have a cat named Poly-Anna, she's an adorable sweetheart 🐱
