@@ -23,6 +23,6 @@ I'm currently learning the ins and outs of GitHub and Javascript 👩🏼‍💻
 
 Reach me at: morgancorder1056@gmail.com ✉️
 
-Pronouns: She/Her  He/Him  Any!
+Pronouns: He/Him
 
 Fun fact: I have a cat named Poly-Anna, she's an adorable sweetheart 🐱
